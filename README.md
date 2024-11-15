@@ -1,6 +1,8 @@
 Hình ảnh trang web
 
 ![z6033763135258_ffb8d458defd99b081ba81839fd7852c](https://github.com/user-attachments/assets/0f6c317e-8cdd-4320-8688-be314b458743)
+![image](https://github.com/user-attachments/assets/5536aee0-b1b3-40a1-ab62-0685cad67f90)
+
 ![z6033763135253_defeed234be54641ca6927abd599c9a9](https://github.com/user-attachments/assets/2609f285-a132-4d92-aa73-7d96cb6759d6)
 ![z6033763101302_5c45daf64619ccc8db33220e4503d364](https://github.com/user-attachments/assets/f6f6c46b-7940-4ffb-990c-6c22f9515644)
 ![z6033763101203_856baab13423014a12fc92ace673b063](https://github.com/user-attachments/assets/abd5da67-b2e3-44f6-ab9e-51852d1bff15)
